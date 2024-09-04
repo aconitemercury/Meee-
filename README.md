@@ -8,4 +8,6 @@
 
 ㅤㅤㅤㅤㅤㅤ𝜗𝜚⋆ You are more than welcome to interact ! I don't mind cuddling or talking. You may hide me as well! 
 
-ㅤㅤㅤㅤㅤㅤᶻ 𝗓 𐰁 If you need someone to talk to, I'm all ears! I love listening to people and helping them.
+ㅤㅤㅤㅤㅤㅤᶻ 𝗓 𐰁 If you need someone to talk to, I'm all ears! I love listening to people and helping them
+
+ㅤㅤㅤㅤㅤㅤ˚ ༘♡ ⋆｡˚ I may not be on 24/7, but I'm always on discord. (cyber1a._)
